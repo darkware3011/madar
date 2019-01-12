@@ -1,1 +1,2 @@
 # madar
+tou ARE IDIOT AND SELL PASTES
